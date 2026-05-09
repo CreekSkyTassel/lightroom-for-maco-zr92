@@ -1,4 +1,4 @@
-
+Enhance Lightroom for macOS with advanced Lightroom for macOS Utility | color-correction + auto-enhance, the #1 utility. Includes color-correction and auto-enhance for a smoother
 
 
 
